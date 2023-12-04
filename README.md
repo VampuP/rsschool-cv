@@ -1,1 +1,1 @@
-https://VampuP.github.io/rsschool-cv/cv
+https://VampuP.github.io/rsschool-cv
